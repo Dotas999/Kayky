@@ -2,7 +2,7 @@
 
 Meu nome é Kayky Dotas
 
-- Esrou estudando no Alura
+- Estou estudando no Alura
 - Estou me desenvolvendo no JavaScript
 - Utilizo esse espeço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
