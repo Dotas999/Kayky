@@ -13,3 +13,6 @@ Meu nome é Kayky Dotas
 @Kaykyoficial_2007
 
 ![](https://media.tenor.com/U4XlWncd5nEAAAAi/panda.gif)
+
+Meu currÍculo
+https://drive.google.com/file/d/1IXaRE0iOiU_AnO1SPuR7OYh5Z9ByndSA/view?usp=drive_link
